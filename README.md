@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/hsuwasd/sdfghhgfdwqergfvcsawefdedsa)
+
 # sdfghhgfdwqergfvcsawefdedsa
 为应对6月GFW扫协议备用节点
 建议带有&的节点自行进行优选IP操作
