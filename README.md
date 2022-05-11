@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/hsuwasd/sdfghhgfdwqergfvcsawefdedsa)
+![hsuwasd](https://count.getloli.com/get/@hsuwasd?theme=rule34)
 
 # sdfghhgfdwqergfvcsawefdedsa
 为应对6月GFW扫协议备用节点
